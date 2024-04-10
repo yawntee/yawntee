@@ -1,2 +1,3 @@
 事已至此，先睡觉吧zzZ
-![pusheen](https://camo.githubusercontent.com/ebf5606c24de332408b8ab41c786d9593ef0e36b46ce48b21610fa7c53f5394a/68747470733a2f2f692e6962622e636f2f393246484c34642f7075736865656e636f64652e676966)
+
+![ce3bc31fd9813614faac5f2cc12b410a](https://github.com/yawntee/yawntee/assets/48887270/1c1a29fc-54de-4fbc-a236-e52f92de0ab5)
